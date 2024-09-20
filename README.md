@@ -24,7 +24,10 @@
 ![image](https://github.com/user-attachments/assets/0e98e972-c4b1-4ef9-99ad-a0eabf4b2d66)
 # Pattern10
 ![image](https://github.com/user-attachments/assets/848ed495-f1f9-4d58-8986-0dab81736985)
-
+# Pattern11
+![image](https://github.com/user-attachments/assets/690cad13-a2b0-45ba-9c0d-e3329d0addde)
+# Pattern12
+![image](https://github.com/user-attachments/assets/3d1ddf30-c55a-4d11-a75e-6b00002a313f)
 
 
 
